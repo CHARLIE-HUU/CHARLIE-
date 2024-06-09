@@ -1,2 +1,0 @@
-# CHARLIE-
-CHARLIE-XD
